@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Python, API's, or Web Development**
 
-- 📫 How to reach me **goddardrory@gmail.com**
+- 📫 How to reach me: **goddardrory@gmail.com**
 
 
 ## 🌐 Socials:
