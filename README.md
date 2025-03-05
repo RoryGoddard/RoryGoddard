@@ -11,7 +11,8 @@
 
 - 📫 How to reach me **goddardrory@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/e/2PACX-1vRkxZ91Pxbx-_xYvSvfwNn0PTj1fG38Bv8TCysZIicPy8noGidRtoiJFKucYAYQ4hObTkGCgLnTUZ-9/pub](https://docs.google.com/document/d/e/2PACX-1vRkxZ91Pxbx-_xYvSvfwNn0PTj1fG38Bv8TCysZIicPy8noGidRtoiJFKucYAYQ4hObTkGCgLnTUZ-9/pub)
+- 📄 Know about my experiences [Here](https://docs.google.com/document/d/e/2PACX-1vRkxZ91Pxbx-_xYvSvfwNn0PTj1fG38Bv8TCysZIicPy8noGidRtoiJFKucYAYQ4hObTkGCgLnTUZ-9/pub)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
